@@ -1,4 +1,4 @@
-# Рецепт: Брауни
+# Рецепт: Брауни с новой инфо
 [оригинал](https://eda.ru/recepty/vypechka-deserty/brauni-brownie-20955)
 
 ### Ингредиенты
